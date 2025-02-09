@@ -1,1 +1,1 @@
-Contact at matias.rodriguez@cenia.cl
+Contact me: matias.rodriguez@cenia.cl
